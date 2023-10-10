@@ -4,7 +4,7 @@ I am peaceful
 I am powerful    
 I am worthy  
 I am efficient  
-I am creartive  
+I am creative  
 I am popular  
 I am wise  
 I am beautiful  
