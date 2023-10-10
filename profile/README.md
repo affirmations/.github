@@ -1,3 +1,5 @@
+[Français](https://github.com/affirmations/affirmations/blob/main/README.fr-fr.md)
+
 I am powerful    
 I trust myself  
 I am happy  
