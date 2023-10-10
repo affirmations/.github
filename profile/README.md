@@ -1,11 +1,20 @@
 [Français](https://github.com/affirmations/affirmations/blob/main/README.fr-fr.md)
 
+I am peaceful  
 I am powerful    
-I trust myself  
+I am worthy  
+I am efficient  
+I am creartive  
+I am popular  
+I am wise  
+I am beautiful  
+I am worthy    
 I am happy  
+I am a miracle maker  
+I am helpful  
+I am worthy  
+I have many friends  
 I am filled with love  
-Abundance comes to me easily  
-Life is simple, easy and effortless  
 
 **Ho’oponopono**  
 I am sorry  
