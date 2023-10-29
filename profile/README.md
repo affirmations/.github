@@ -1,4 +1,5 @@
 [Français](https://github.com/affirmations/affirmations/blob/main/fr/README.md)
+| [日本語](https://github.com/affirmations/affirmations/blob/main/jp/README.md)
 
 I am peaceful  
 I am powerful    
